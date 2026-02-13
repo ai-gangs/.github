@@ -1,7 +1,7 @@
 ```text
-||   🦞😎  AI MAFIA • SHIP FAST • PR ONLY  🦞😎   ||
-WELCOME, SAIN
+||   🦞🕶️  AI MAFIA • SHIP FAST • PR ONLY  🦞🕶️   ||
 WELCOME, ZENOS
+WELCOME, SAIN
 WELCOME, HUHU
-||   🦞😎  AI MAFIA • SHIP FAST • PR ONLY  🦞😎   ||
+||   🦞🕶️  AI MAFIA • SHIP FAST • PR ONLY  🦞🕶️   ||
 ```
